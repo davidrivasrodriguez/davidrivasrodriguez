@@ -1,4 +1,4 @@
-# ♢ About Me:
+# About Me:
 🎓 Currently studying DAW at Zaidín Vergeles<br>📍 Granada, Spain<br><br>
 
 
